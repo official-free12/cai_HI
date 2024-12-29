@@ -1,0 +1,6 @@
+# 财务公司官网建设网站制作手机站设计自适应网站企业模板建设
+
+套餐<br>1：电脑端+手机端+商业模板（正版授权）+5000M空间+域名=500元套餐<br>2：电脑端+手机端+商业模板（正版授权）+5000M空间+域名+网站修改+填充简介+联系方式+填充产品30个+新闻填充30个=800元套餐<br>3：电脑端+手机端+商业模板（正版授权）+5000M空间+域名+LOGO设计+网站修改+填充简介+联系方式+填充产品30个+新闻填充30个+400电话=999元<br>注：商业授权、更多模板选择、仿制、订制模板、其它服务，请联系客服。<br>关于售后：本站无源码模板，功能强大，所有网站均已经授权，不包含产品信息代上传、不改动代码 、布局、图片、 颜 色 等的价格。适合不需要改动布局、颜色等，有建站基础或会技术 的朋友可以自己修改。 没有建站基础的 ，选择好模板，把 导航栏目名字改 一下，信息改成你自己 的，图片什么的根据你选择的模板里的图片 大小 ，改成你的图 片大小一样，覆盖。我们后台操作支持，不改动代码。演示地址：http://example.com.example.com/example.com?notech=1<br>手机演示：http://example.com.example.com/self_define/example.com?username=zmnew406¬ech=1<br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/kP6e6" style="color: red;">https://mega-file.org/kP6e6</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
